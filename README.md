@@ -11,7 +11,7 @@ https://www.threads.com/@dasyusya_dasu 
 
 Можем познакомиться за виртуальной здоровенной кружкой...чего вы там любите? Так же буду рада обратной связи от разработчиков и тимлидов. :)
 
-Уф...И как меня сюда вообще занесло?..
+Уф...И как меня сюда вообще занесло?.. Сижу тут, с сайтом для кодеров разбираюсь.
 
 <!--
 **DASYUSYA/DASYUSYA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
