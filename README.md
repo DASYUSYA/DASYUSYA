@@ -1,6 +1,6 @@
 ## исследую → структурирую → нахожу связи → формулирую вопросы → проверяю гипотезы → ищу решения 
 
-https://www.threads.com/@dasyusya_dasu 
+[https://www.threads.com/@dasyusya_dasu](https://www.threads.com/@dasyusya_dasu)
 
 Solution Architect & System Analyst
 
