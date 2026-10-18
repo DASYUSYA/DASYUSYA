@@ -3,7 +3,7 @@
 [https://www.threads.com/@dasyusya_dasu](https://www.threads.com/@dasyusya_dasu)
 
 Solution Architect & System Analyst
-I Проектирование архитектуры и Системный анализ
+I Проектирование архитектур и Системный анализ
 
 Привет! Меня зовут Дарья. 
 
